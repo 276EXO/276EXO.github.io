@@ -1,1 +1,1 @@
-For info about the challenge go to: 276EXO.github.io
+For info about the challenge go to: https://276EXO.github.io
